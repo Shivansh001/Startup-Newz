@@ -1,2 +1,4 @@
-# Startup-Newz
-Startup-Newz is a free startups listing platform. It provides all latest information about startups and companies. It also provides enough resources for entrepreneurs in making their documents.
+THEME SHARED ON THEMELOCK.COM
+
+
+ www.themelock.com
